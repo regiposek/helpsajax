@@ -1,0 +1,2 @@
+https://hentaiheroeskobans.club
+In many different themed worlds, you will have to convince girls to join your harem and to fight for you. You will make your way through stories which are both fun and sexy, meet bosses and experience some nice hentai situations. It's your job to develop your harem in order to make your girls stronger and to win all of your fights, whether they are against bosses or other players. Hentai Heroes is a game that mix several styles: Visual Novel, RPG and even manga parodies! Game is compatible with mobile devices and free to play.
